@@ -1,4 +1,6 @@
-Wanderers, among ye who wander here, rejoice!
+One man's attempt to live on the clouds.
+
+*Wanderers, among ye who wander here, rejoice!*
 
 The High Life
 -------------
